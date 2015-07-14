@@ -1,0 +1,1 @@
+tudo para android
